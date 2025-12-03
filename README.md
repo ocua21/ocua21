@@ -4,7 +4,7 @@
 
 🎓 Graduated with a Bachelor's in Computer Science and Data Analytics 
 
-📚 Currently working as a Business Analyst Consultant in Cybersecurity
+📚 Currently working as a Consultanting Analyst in Cybersecurity
 
 🔍 Exploring opportunities in Artificial Intelligence and Data Analytics
 
